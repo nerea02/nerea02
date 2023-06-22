@@ -9,6 +9,7 @@ Curso 2° año de la carrera de Técnico Superior en Desarrollo de Software.
 - 🏥 Actualmente trabajo en una clínica renal en Luján de Cuyo.
 - 🌱 Mi objetivo en un futuro no tan lejano es insertarme en una empresa en el área de la tecnología para la cual estoy formándome.
 - 👯 Soy proactiva con espíritu emprendedor, me gusta trabajar en equipo y tengo empatía.
+- 💃 También bailo folklore.
 
 Me van a ubicar en los siguientes canales de contacto:
 

@@ -1,6 +1,6 @@
 ### Holis! 👋 Soy Nerea
 
-Soy Técnica Universitaria en Hemódialisis.
+Soy Técnica Universitaria en Hemodiálisis.
 
 Curso 2° año de la carrera de Técnico Superior en Desarrollo de Software.
  
